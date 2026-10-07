@@ -26,3 +26,4 @@ Sie wurden gehackt
 ## Teilnehmer
 Stefan Martin
 
+<img width="640" height="424" alt="image" src="https://github.com/user-attachments/assets/752b757b-399b-4acf-9a68-b7a8ada61b98" />
